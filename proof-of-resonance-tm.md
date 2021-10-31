@@ -1,0 +1,3 @@
+# Proof of Resonance ™
+
+Now you can enrich your creations and NTFs with TOM NFTs or reward your favorite artists for their art or songs that inspire you the most with a TOM NFT created by your flow in resonance with their music or their artist creations. This puts real and blockchain digital art, content and music on a whole new scale by which we can measure the harmonic resonance of the artist or creator with the listener or viewer and reward both for their true value with a token of appreciation. This application can be applied to any creator or creation of real or digital masterpieces. Life just got more real and abundant with Proof of Resonance ™

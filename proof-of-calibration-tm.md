@@ -1,0 +1,3 @@
+# Proof of Calibration ™
+
+Now you can validate transactions on the blockchain simply by having calibration with your true intentions. TOM Flow Sensors are simple truth detectors that can facilitate the authentication of transactions, identity, passwords, and good actors with Proof of Calibration ™ This adds an extra layer of validation, authenticity and transparency to your application or platform, especially for highly sensitive or valuable transactions, such as real estate transactions or confirming irreversible decisions that carry substantial impact like whether to drop the bomb or not. Proof of Calibration ™ is the minimum viable alignment required to validate win-win balance and the tipping point for trending towards greater value with coherency and resonance.
